@@ -1,2 +1,2 @@
 
-###### *Thank You !! - okzahid.tk*
+###### *Thank You !! - dm me for more awesome content*
