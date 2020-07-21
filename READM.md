@@ -1,2 +1,2 @@
 
-###### *Thank You !! - dm me for more awesome content*
+###### *Thank You !! - Bas Aapki Dua*
